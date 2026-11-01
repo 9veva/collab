@@ -1,3 +1,1 @@
 # Colaboration 
-
-02.11.2026
